@@ -1,0 +1,1 @@
+# Gigabyte-Z490i-i7-10700-6600XT-Hackintosh
